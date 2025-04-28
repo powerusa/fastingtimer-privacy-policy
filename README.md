@@ -29,5 +29,5 @@ Our App does not address anyone under the age of 13. We do not knowingly collect
 We may update our Privacy Policy from time to time. Changes are effective immediately after they are posted.
 
 ## Contact Us
-If you have any questions about this Privacy Policy, you can contact us at: [your-email@example.com]
+If you have any questions about this Privacy Policy, you can contact us at: [pawel.palka@yahoo.com]
 
